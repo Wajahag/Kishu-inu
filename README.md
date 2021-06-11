@@ -1,0 +1,2 @@
+# Kishu-inu
+Meme coin
